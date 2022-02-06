@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ColdlordXRepositories
+- 👀 I’m interested in fnf
+- 🌱 I’m currently learning nothing :)
+- 💞️ I’m looking to collaborate on maybe fnf mods
+- 📫 How to reach me; you cant lol
